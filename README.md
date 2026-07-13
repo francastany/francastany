@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 I'm a 21 years old Full Stack Developer & Multimedia Design Student from Argentina. <br>
+💻 I'm a 23 years old Full Stack Developer & Multimedia Designer from Argentina. <br>
 
 
 ## 🌐 Socials:
